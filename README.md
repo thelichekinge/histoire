@@ -18,4 +18,6 @@ Léo sentit le sol vibrer sous ses pieds, et un halo doré se dessina entre les 
 
 Guidé par une force invisible, Léo s’agenouilla et posa le médaillon sur la lumière.
 Le sol s’ouvrit lentement, révélant un escalier de pierre plongeant dans les entrailles de la terre.
-Une voix ancienne résonna alors dans l’air : « Entre, héritier d’Aladar… le temps du réveil est venu. »
+Une voix ancienne résonna alors dans l’air : « Entre, héritier d’Aladar… le temps du réveil est venu. »  
+  
+Parfait ! 
