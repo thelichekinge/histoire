@@ -11,3 +11,8 @@ un jeune forgeron nommé **Léo** découvrit une **carte ancienne**...
 Saisi par l’enthousiasme, Léo rassembla quelques provisions et quitta le village avant l’aube.
 À la lisière de la forêt, une silhouette l’attendait, prétendant connaître l’origine de la carte.
 Lorsque le vent se leva soudain, les arbres murmurèrent un nom oublié depuis des siècles : Aladar.
+
+La silhouette tendit une main tremblante, dévoilant un médaillon portant le même symbole que sur la carte.
+« Le chemin ne s’ouvre qu’à ceux qui se souviennent », souffla-t-elle avant de disparaître dans la brume.
+Léo sentit le sol vibrer sous ses pieds, et un halo doré se dessina entre les racines noueuses des arbres.
+
