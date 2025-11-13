@@ -14,5 +14,8 @@ Lorsque le vent se leva soudain, les arbres murmurèrent un nom oublié depuis d
 
 La silhouette tendit une main tremblante, dévoilant un médaillon portant le même symbole que sur la carte.
 « Le chemin ne s’ouvre qu’à ceux qui se souviennent », souffla-t-elle avant de disparaître dans la brume.
-Léo sentit le sol vibrer sous ses pieds, et un halo doré se dessina entre les racines noueuses des arbres.
+Léo sentit le sol vibrer sous ses pieds, et un halo doré se dessina entre les racines noueuses des arbres.  
 
+Guidé par une force invisible, Léo s’agenouilla et posa le médaillon sur la lumière.
+Le sol s’ouvrit lentement, révélant un escalier de pierre plongeant dans les entrailles de la terre.
+Une voix ancienne résonna alors dans l’air : « Entre, héritier d’Aladar… le temps du réveil est venu. »
